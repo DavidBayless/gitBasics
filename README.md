@@ -2,6 +2,11 @@
 
 ## MOARR PONIES!
 
+##Trump Taunts Kim: 'I Too Have a Nuclear Button'
+
+In a tweet, President Trump said his nuclear button was "much bigger &
+more powerful" than Mr. Kim's. "And my Button works!"
+
 ```$$$$$$$$$$$$$$$$$$$$$$$$$$$**""""`` ````"""#*R$$$$$$$$$$$$$$$$$$$$$$$$$$$
 $$$$$$$$$$$$$$$$$$$$$$*""      ..........      `"#$$$$$$$$$$$$$$$$$$$$$$$
 $$$$$$$$$$$$$$$$$$$#"    .ue@$$$********$$$$Weu.   `"*$$$$$$$$$$$$$$$$$$$
